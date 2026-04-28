@@ -1,0 +1,2 @@
+# OSSP_INDIVIDUAL_ZIKREMARIAM_ABEBE_DESALEGN_BDU1702857_SECTION--B
+Operating System individual assignment
